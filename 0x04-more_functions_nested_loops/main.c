@@ -1,1 +1,0 @@
-alx ma pami naww
